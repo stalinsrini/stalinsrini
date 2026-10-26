@@ -4,7 +4,7 @@
 
 I am a doctoral researcher at the Centre for Indo-Pacific Studies, School of International Studies, Jawaharlal Nehru University (JNU), India.
 
-My doctotal research examines the political economy of multilateral development finance, disaster risk reduction, climate governance, and Southeast Asia, with a particular focus on Indonesia and ASEAN.
+My doctoral research examines the political economy of multilateral development finance, disaster risk reduction, climate governance, and Southeast Asia, with a particular focus on Indonesia and ASEAN.
 
 ## Research Interests
 
